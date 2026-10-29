@@ -76,6 +76,8 @@ We choose to replicate [the blueprint of Large People Model](https://www.linkedi
 
 ### How to Join
 
+[Seed members joining form](https://forms.gle/SgAiyyhE6k2H4K7k8)
+
 ✅ It’s referral-only. Good people refer good people.
 
 ✅ We do a quick LinkedIn relevance check.
